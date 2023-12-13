@@ -1,0 +1,1 @@
+# Analisando-A-es-da-Ibovespa
